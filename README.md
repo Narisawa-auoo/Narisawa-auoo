@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Narisawa-auoo
-- 👀 I’m interested in girl
-- 🌱 I’m currently learning girl
-- 💞️ I’m looking to collaborate on girl
+- 👀 I’m interested in jil
+- 🌱 I’m currently learning jil
+- 💞️ I’m looking to collaborate on jil
 - 📫 How to reach me sawrawit_auoo@hotmail.com
 
 <!---
